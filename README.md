@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Mobile app development**
 
-- 📫 How to reach me **beniwal.brc@gmail.com**
+- 📫 Reach me at **beniwal.brc@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
